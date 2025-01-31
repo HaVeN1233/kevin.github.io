@@ -1,2 +1,1 @@
-# Fishteadulan ng Zillovia
-👉🏻👌🏻💦🔥
+#Fishteadulan
